@@ -1,1 +1,1 @@
-“lllllllolllllll”
+“fuck the class”
